@@ -20,4 +20,4 @@ An enthusiastic individual with 7 years of total experience in roles as Administ
 - Data Engineering
 
   ## Let's Connect:
-  [LinkedIn](https://wwww.linkedin.com/in/dannysnow77)
+  [LinkedIn](https://www.linkedin.com/in/dannysnow77)
